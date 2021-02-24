@@ -1,1 +1,1 @@
-techhsolution.github.io
+techspottechnology.github.io
